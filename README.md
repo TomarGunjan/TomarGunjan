@@ -1,4 +1,5 @@
-![Quotefancy-4613247-3840x2160](https://github.com/TomarGunjan/TomarGunjan/assets/26132783/1095edac-a7ee-4b8a-8e9f-e6472ef73eb0)
+<img width="940" alt="Screenshot 2024-06-21 at 11 37 36 AM" src="https://github.com/TomarGunjan/TomarGunjan/assets/26132783/3a974427-9193-47d1-aff2-79ecdd426838">
+
 
 
 
