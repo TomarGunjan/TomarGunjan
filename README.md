@@ -1,4 +1,5 @@
-<img width="940" alt="Screenshot 2024-06-21 at 11 37 36 AM" src="https://github.com/TomarGunjan/TomarGunjan/assets/26132783/3a974427-9193-47d1-aff2-79ecdd426838">
+![image](https://github.com/TomarGunjan/TomarGunjan/assets/26132783/76ea7613-8be1-4359-a243-21c0d0dae073)
+
 
 
 
